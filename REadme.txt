@@ -1,1 +1,1 @@
-GIT ZALUPA KINSKAYA PLZ WORK
+Все хорошо и прекрасно
